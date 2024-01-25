@@ -1,4 +1,4 @@
-### Hello World, I'm Tianah Brooks 💕👩‍💻
+### Hello World, I'm Tianah 💕👩‍💻
 
 🌸 **A Little Bit About Me:**
 - 🎓 I'm blossoming in my final year as a Computer Science student.
